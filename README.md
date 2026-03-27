@@ -48,7 +48,7 @@ I enjoy learning new tools, exploring emerging technologies, and continuously im
 ---
 
 ## Contact
-- Email: your.email@example.com  
+- Email: sharmakrishnkant06@gmail.com
 - LinkedIn: https://www.linkedin.com/in/krishankant-sharma-14a1b9382  
 
 ---
